@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @OzyDLosva
+- 👀 I’m interested in IT field and switching careers
+- 🌱 I’m currently learning HTML-CSS-Javascript-Wordpress
+- 💞️ I’m looking to collaborate with a company hat is willing to accept an entry level developer with thirst for knowledge.
+- 📫 How to reach me. By social media ( Instagram-LinkedIn or via email).
